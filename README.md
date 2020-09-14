@@ -1,4 +1,4 @@
-### 👋 Hello, I am, 
+### 👋  Hello, I am
 Isaac Oluwatemilorun
 ==============
 
